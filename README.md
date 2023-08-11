@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KingBintong
+- 👋 Hi, I’m @AGA
 - 👀 I’m interested in Gaming and Tech Life
 - 🌱 I’m currently learning about life
 - 💞️ I’m looking to collaborate on app 
